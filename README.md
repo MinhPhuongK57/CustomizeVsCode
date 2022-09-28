@@ -1,0 +1,1 @@
+This is a custom visual code file that I collect the most beautiful color codes to use, you can download and use it.
